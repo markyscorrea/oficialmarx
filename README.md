@@ -1,4 +1,4 @@
-# ➡️[linkGamenous](https://markyscorrea.github.io/oficialmarx/)
+# ➡️[linkGamenous](https://markyscorrea.github.io/oficialmarx/)⬅️
 
 
 ## 🔖Sobre
